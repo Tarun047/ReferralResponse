@@ -3,7 +3,7 @@ Most likely because you have asked me for a referral on LinkedIn or through mail
 
 # Will I refer you ?
 I prefer referring only the people whom I have profesionally worked with as part of my professional ethics. <br />
-I believe that giving a referral means that  I am taking a stand that I believe that you'll be a strong fit for the role <br />
+I believe that giving a referral means that  I am taking a stand that I believe that you'll be a strong fit for the role. <br />
 And since I haven't worked with you before, I think that I can't perform a proper evaluation of your skills and how you react to various scenarios that you might face as part of your day job. <br />
 
 # Why is this important ?
