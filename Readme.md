@@ -21,6 +21,8 @@ It's generally a good practice to include links to the specific job ids that you
 This is of paramount importance because it shows that you are invested in your career and have done the right amount of research needed from your side to see if you fit for the job. <br />
 Finally remember that **if you are not ready to invest in your career, you can't expect the person you are asking a referral to invest time for you** <br />
 
+Hope you take this as a postive experience and finally
+
 **All the best for your career**
 
 -- Tarun
